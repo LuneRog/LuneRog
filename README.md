@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...dsfdg
 - 🌱 I’m currently learning ..f
 - 💞️ I’m looking to collaborate on .
-- 📫 How to reach me nghjg
+- 📫 How to reach me nghjgs
 
 <!---
 LuneRog/LuneRog is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
