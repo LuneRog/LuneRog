@@ -1,7 +1,7 @@
 mm- 👋 Hi, I’m @LuneRogeNJJ
 - 👀 I’m interested in ...dsfdg
 - 🌱 I’m currently learning ..f
-- 💞️ I’m looking to collaborate on .fgsda
+- 💞️ I’m looking to collaborate on .fgsdas
 - 📫 How to reach me nghjgsçç
 x
 <!---dd
